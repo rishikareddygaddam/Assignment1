@@ -12,7 +12,7 @@ Graduate student at -[Northwest Missouri State University](https://www.nwmissour
 
 1. 18 months of experience at Accenture
 
-![Hosted image](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/MiniPoodlePup.jpg/800px-MiniPoodlePup.jpg "accenture logo")
+![Hosted image](https://www.accenture.com/t20170407T081136Z__w__/us-en/_acnmedia/Accenture/Conversion-Assets/Careers/Images/LandingPage/58/Accenture-Explore-08 "accenture logo")
 
 2. Bachelor's Degree from Chaitanya Bharathi Institute of Technology in **Information Technology**
 
