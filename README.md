@@ -1,5 +1,3 @@
-# Assignment
-
 ## Name
 
 Rishika Reddy Gaddam
