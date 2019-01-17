@@ -6,7 +6,7 @@ Rishika Reddy Gaddam
 
 ## Current Position
 
-Graduate student at -[Northwest Missouri State University](https://www.nwmissouri.edu/ "NWMSU")
+Graduate student at [Northwest Missouri State University](https://www.nwmissouri.edu/ "NWMSU")
 
 ## Previous Qualifications
 
